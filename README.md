@@ -1,0 +1,3 @@
+As Adam reached for Heaven, God reached down...
+
+And handed him a stack of spreadsheets. "I'm gonna need these sorted by Tuesday"
